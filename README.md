@@ -4,8 +4,8 @@
 - 🔭 **I’m currently working on:** HaveIt (Find what you crave, wear what you love — all in one click) project.
 - 🌱 **I’m currently learning:** GenAI, Few frameworks.
 - 💬 **Ask me about:** Collaboration, Tech Support
-- 📫 **How to reach me:** +91 9599761722 and guguloth.kumar@alumni.iitd.ac.in
-- 😄 **Pronouns:** Ajay Sir
+- 📫 **How to reach me:** +91 9182664990  and deepakparsha2004@gmail.com
+- 😄 **Pronouns:** Deepak Sir
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 ## 🌐 Socials:
